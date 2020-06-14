@@ -1,8 +1,12 @@
 ### UK Government & Parliament petitions
 
+- [Teach Britain's colonial past as part of the UK's compulsory curriculum](https://petition.parliament.uk/petitions/324092)
+
+- [Improve Maternal Mortality Rates and Health Care for Black Women in the U.K.](https://petition.parliament.uk/petitions/301079)
+
 - [Add education on diversity and racism to all school curriculums](https://petition.parliament.uk/petitions/323808)
 
-- [Teach Britain's colonial past as part of the UK's compulsory curriculum](https://petition.parliament.uk/petitions/324092)
+- [Making the UK education curriculum more inclusive of BAME history](https://petition.parliament.uk/petitions/323961)
 
 ***
 
