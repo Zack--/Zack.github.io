@@ -10,6 +10,20 @@
 
 - [Making the UK education curriculum more inclusive of BAME history](https://petition.parliament.uk/petitions/323961)
 
+- [Make LGBT conversion therapy illegal in the UK](https://petition.parliament.uk/petitions/300976)
+
+- [Introduce Mandatory Ethnicity Pay Gap Reporting](https://petition.parliament.uk/petitions/300105)
+
+- [Create an independent investigatory commission to help protect ethnic minorities](https://petition.parliament.uk/petitions/323867)
+
+- [Require British Sign Language Interpreters for emergency announcements on TV.](https://petition.parliament.uk/petitions/301461)
+
+- [Add ethics to the national curriculum for primary schools](https://petition.parliament.uk/petitions/324194)
+
+- [Add gender identity to the characteristics protected under the Equality Act 2010](https://petition.parliament.uk/petitions/301138)
+
+- [Include LGBT+ history and LGBT+ history month in National Curriculum](https://petition.parliament.uk/petitions/303195)
+
 ***
 
 ### Write to your MP
