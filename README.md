@@ -1,5 +1,7 @@
 ### UK Government & Parliament petitions
 
+- [Suspend future sales of tear gas and other crowd control equipment to the USA](https://petition.parliament.uk/petitions/324208)
+
 - [Teach Britain's colonial past as part of the UK's compulsory curriculum](https://petition.parliament.uk/petitions/324092)
 
 - [Improve Maternal Mortality Rates and Health Care for Black Women in the U.K.](https://petition.parliament.uk/petitions/301079)
