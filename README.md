@@ -34,6 +34,8 @@
 
 - [Justice for Belly Mujinga](https://docs.google.com/document/d/1P7owSv_blKdVaAzII-ySKpk1Vo7w2c_mpE4wUSmRPBQ/edit?usp=sharing)
 
+- [Protect gender identity and self-identification laws](https://docs.google.com/document/d/1GxAZ22nOufZ-NcSE1qMLQNrC_zx-o8NjgJ_MV7W4oBU/edit?fbclid=IwAR3_6ygz7FwcCNcOGaucLMRE5Qu5coSUfaTqrlZDvkiz1fE1M88bplQSss4)
+
 - [Information about your MP](https://www.theyworkforyou.com/)
 
 - [Find Your MP](https://members.parliament.uk/constituencies/)
