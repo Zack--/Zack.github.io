@@ -1,3 +1,8 @@
+[THE FANTASY WORLD MASTER LIST OF RESOURCES ON HOW TO DISMANTLE SYSTEMIC RACISM](http://pfw.guide/)
+
+
+***
+
 ### UK Government & Parliament petitions
 
 - [Suspend future sales of tear gas and other crowd control equipment to the USA](https://petition.parliament.uk/petitions/324208)
