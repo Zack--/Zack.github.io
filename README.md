@@ -1,6 +1,26 @@
-### Contact Parliament & House of Lords
+# Disclaimer
 
-- [Complaint about Baroness Nichol for gross racist and transphobic attacks](http://sophiewilliamsofficial.com/resources/parliamentary-complaint/)
+This is a list I curate every now and then, mostly targetted to a UK/European audience (check links in PFW's guide below for US links)
+
+Order of links is irrelevant, they are all equally important.
+
+If you care about having a positive impact around you, start here.
+
+If you're feeling lost and unsure of what to do, donate.
+
+Go vote.
+
+***
+
+### Current funds I care about
+
+- [Sawubona Foundation - Fighting for Women's liberation](https://uk.gofundme.com/f/sawubona-support-of-endsars)
+
+- [LGBT Unity fund helping queer people in need in Scotland](https://uk.gofundme.com/f/lgbt-unity-fundraiser)
+
+- [Journey to the East - celebrating asian joy](https://www.gofundme.com/f/r3mkx-journey-to-the-east)
+
+***
 
 ### Massive lists of ressources
 
@@ -14,7 +34,7 @@
 
 - [Suspend future sales of tear gas and other crowd control equipment to the USA](https://petition.parliament.uk/petitions/324208)
 
-- [Teach Britain's colonial past as part of the UK's compulsory curriculum](https://petition.parliament.uk/petitions/324092)
+- ~~[Teach Britain's colonial past as part of the UK's compulsory curriculum](https://petition.parliament.uk/petitions/324092)~~
 
 - [Improve Maternal Mortality Rates and Health Care for Black Women in the U.K.](https://petition.parliament.uk/petitions/301079)
 
